@@ -1,1 +1,1 @@
-# Visit [https://bresch90.github.io/](https://bresch90.github.io/) to view the resume!
+# Visit [https://AlexBresch.github.io/](https://AlexBresch.github.io/) to view the resume!
